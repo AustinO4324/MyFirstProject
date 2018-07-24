@@ -1,1 +1,1 @@
-"Testing out my mind" 
+"I am different now" 
